@@ -7,4 +7,3 @@
 - 😄 **Pronouns:** He/Him  
 - ⚡ **Fun fact:** I’m a passionate volleyball player and traveler who thrives on creating impactful solutions.  
 
-
