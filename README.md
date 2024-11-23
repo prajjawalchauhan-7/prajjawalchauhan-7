@@ -5,5 +5,5 @@
 - 💞️ **I’m looking to collaborate on:** AI/ML projects, blockchain solutions, and innovative web apps.  
 - 📫 **How to reach me:** prajjawalchauhan11@gmail.com 
 - 😄 **Pronouns:** He/Him  
-- ⚡ **Fun fact:** I’m a passionate volleyball player and traveler who thrives on creating impactful solutions.  
+- ⚡ **Fun fact:**  I enjoy exploring new fields that complement and enhance my professional work..  
 
